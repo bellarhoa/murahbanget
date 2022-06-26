@@ -46,7 +46,7 @@
 
 11. Nama : Bella Rhobiatul Adhawiyah
 
-    Link Github : https://github.com/bellrhoa
+    Link Github : https://github.com/bellarhoa
 
 12. Nama : Wahyu Maulana Prawiro
 
